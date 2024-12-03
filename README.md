@@ -1,5 +1,5 @@
 # KN2-zapiski-ot-vtori-semestur
-zapiskite ot vtori semestur
+zapiskite ot vtori semestur 
 засега ще са линк драйв, ще ги кача по-късно
 не са пълни, но са доста полезни
 от курсовете на КН2
